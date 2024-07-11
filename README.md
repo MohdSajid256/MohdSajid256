@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MohdSajid256
+- 👀 I’m interested in exploring new technologies and innovations.
+- 🌱 I’m currently learning different software testing methods and technologies.
+- 💞️  I’m looking to collaborate on different Internnational projects to learn and grow.
+- 📫 You can reach me via email at sajidaust006@gmail.com or connect with me on LinkedIn.
+- 😄 Pronouns: He/him.
+- ⚡ Fun fact: I love football 
