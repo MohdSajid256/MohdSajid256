@@ -4,4 +4,4 @@
 - 💞️  I’m looking to collaborate on different Internnational projects to learn and grow.
 - 📫 You can reach me via email at sajidaust006@gmail.com or connect with me on LinkedIn.
 - 😄 Pronouns: He/him.
-- ⚡ Fun fact: I love football 
+- ⚡ Fun fact: I love football and cricket
